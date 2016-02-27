@@ -60,7 +60,14 @@ These are the whiskeys that I cherish the most(ish) and share with the best(ish)
 * **Orphan Barrel Rhetoric 21yr**
 * Willett 23yr
 
+# other whiskeys I like
+* Balvenie 12yr
+* Crown Royal XR
+* Jim Beam Signature
+* Macallan 25yr
+
 # whiskey pull requests
+If you see these out in the wild please send me a message with price. I may have you pick it up for me. :-)
 
 * Angel's Envy Barrel Proof
 * Elmer T. Lee
@@ -68,11 +75,9 @@ These are the whiskeys that I cherish the most(ish) and share with the best(ish)
 * Pappy van Winkle 23yr
 * Pappy van Winkle 20yr
 * Pappy van Winkle 12yr
+
+# whiskey suggestions
+Suggestions provided by contributors! Thanks for sharing your favorites. I'll keep my eyes out for these during my travels.
+
 * Town Branch
 * Town Branch Single Barrel
-* 
-# other whiskeys I like
-* Balvenie 12yr
-* Crown Royal XR
-* Jim Beam Signature
-* Macallan 25yr
