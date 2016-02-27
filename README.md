@@ -68,6 +68,8 @@ These are the whiskeys that I cherish the most(ish) and share with the best(ish)
 * Pappy van Winkle 23yr
 * Pappy van Winkle 20yr
 * Pappy van Winkle 12yr
+* Town Branch
+* Town Branch Single Barrel
 * 
 # other whiskeys I like
 * Balvenie 12yr
