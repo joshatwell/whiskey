@@ -11,7 +11,7 @@ If you're traveling with bottles here are some suggestions:
 * If you don't have a "Jet Bag" I recommend wrapping the bottle in jeans and surrounding with other clothes.
 * Whe packing consider that your bag may be dropped and will be placed "face down" on conveyors.
 * If you're planning on buying multiple bottles and worry about suitcase space, consider traveling with a small duffle to carry "overflow" clothing as a carry on. Also good to do this or put extra pair of clothes in backpack in event of lost luggage.
-
+* I do not recommend opening any bottles before shipping unless they have a screw top. I've done it, but it's certainly higher risk of spillage.
 
 
 # Boulder, CO

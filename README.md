@@ -49,6 +49,7 @@ These are usually whiskeys that are a little harder for me to find but I love sh
 * Orphan Barrel Barterhouse 20yr
 * Orphan Barrel Lost Prophet 22yr
 * Orphan Barrel Forged Oak 15yr
+* Orphan Barrel The Gifted Horse
 * Willett 13yr
 
 ## my precious whiskey
@@ -81,3 +82,5 @@ Suggestions provided by contributors! Thanks for sharing your favorites. I'll ke
 
 * Town Branch
 * Town Branch Single Barrel
+* Green Spot Irish Whiskey
+* Yellow Spot Irish Whiskey

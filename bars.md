@@ -29,3 +29,8 @@ Pecadillo | Carrboro, NC - **Amazing bartenders**
 Bourbon and Branch - Awesome atmosphere
 Bourbon Steak - Try Smoked Whiskey Flight
 Hard Water - OMG Selection
+
+# Toronto, ON
+
+The Merchant - Owner is lover of whiskey. Does very cool barrel-aged old fashioned and manhattans.
+
