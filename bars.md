@@ -8,6 +8,7 @@ Please add your twitter handle or github ID next to contributions (mainly so I c
 Park Bar - Nice whiskey offering
 
 # Boulder, CO
+Canyon's Restaurant and bar (part of Marriott Hotel) - Great old fashioned
 West End Tavern - Excellent flights
 
 # Las Vegas, NV
@@ -29,6 +30,9 @@ Pecadillo | Carrboro, NC - **Amazing bartenders**
 Bourbon and Branch - Awesome atmosphere
 Bourbon Steak - Try Smoked Whiskey Flight
 Hard Water - OMG Selection
+
+San Jose, CA
+Paper Plane - Recommended by @vtexan
 
 # Toronto, ON
 
