@@ -17,12 +17,17 @@ The Whiskey Attic
 This one is a little trickier. To visit this place you need to get a group and set up an appointment. Visiting includes a great tasting based on your flavor preferences. It's about $100/person and worth it for a great tasting experience.
 They also boast having the largest whiskey collection in the world. I don't doubt it. Just check out my twitter header image to see what they have! Admittedly the location seems counterintuitive, but you'll have to trust me. They also have an amazing beer selection.
 
+Rose. Rabbit. Lie - Cosmopolitan
+Great atmosphere. Live music. Great bartenders.
+They should know how to make a quality Brooklyn and Sazerac.
+
+# Pittsburgh
+Butcher and Rye
+Great selection and the bartenders know their craft.
+http://butcherandtherye.com/
+
 # Raleigh, NC Area
 Foundation - Great "hidden" spot for excellent cocktails
-
-Pecadillo | Carrboro, NC - **Amazing bartenders**
-
-
 
 # San Francisco, CA
 
@@ -37,4 +42,8 @@ Paper Plane - Recommended by @vtexan
 # Toronto, ON
 
 The Merchant - Owner is lover of whiskey. Does very cool barrel-aged old fashioned and manhattans.
+
+# West Palm Beach, FL
+Blue Martini
+The old fashioned they made me included a rock candy stick. It was a cool way to include the sugar. Given how my evening there went I'm sure they pour heavy. Keep that in mind if you determine you don't like their cocktails. :-)
 
