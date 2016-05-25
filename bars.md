@@ -29,15 +29,35 @@ http://butcherandtherye.com/
 # Raleigh, NC Area
 Foundation - Great "hidden" spot for excellent cocktails
 
+# Dallas, Tx
+Pepper Smash - Plano Tx (Shops of Legacy) - great craft cocktails <- @vTexan
+Whiskey Cakes - Plano Tx - great whiskey collection <- @vTexan
+Fillmore's Pub - Plano Tx (Downtown) <- @vTexan
+
+# Austin, Tx
+Midnight Cowboy Modeling - Secret Speakeasy - book via OpenTable - follow the instructions <- @vTexan
+Ten Oak - Great craft cocktails - @vTexan
+
+# San Antonio, Tx
+Bohanana's Steakhouse - downstairs bar is a throw back to the 20's - great whiskey collection <- @vTexan
+Whiskey Cakes - great collection of Whiskeys <- @vTexan  
+
 # San Francisco, CA
 
 83 Proof - Great bartenders and selection
 Bourbon and Branch - Awesome atmosphere
 Bourbon Steak - Try Smoked Whiskey Flight
 Hard Water - OMG Selection
+**Local Edition - Speakeasy** awesome place - sort of hidden, live music almost every night - get 2 drinks at a time, the bar can get busy <-- @vTexan 
 
-San Jose, CA
+# San Jose, CA
 Paper Plane - Recommended by @vtexan
+Haberdasher - Speakeasy <- @vtexan
+Roots and Rye - (Santana Row) Great craft cocktails and whiskey collection <-- @vtexan
+O'Flatery's Irish Pub - Downtown San Jose - really strong Whiskey Collection (Irish and Japanese) <-- @vTexan
+
+# Santa Clara, Ca
+Bourbon Steak and Pub - inside Levi Stadium - nice craft cocktails <-- @vTexan
 
 # Toronto, ON
 
@@ -46,4 +66,3 @@ The Merchant - Owner is lover of whiskey. Does very cool barrel-aged old fashion
 # West Palm Beach, FL
 Blue Martini
 The old fashioned they made me included a rock candy stick. It was a cool way to include the sugar. Given how my evening there went I'm sure they pour heavy. Keep that in mind if you determine you don't like their cocktails. :-)
-
