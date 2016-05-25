@@ -30,13 +30,13 @@ http://butcherandtherye.com/
 Foundation - Great "hidden" spot for excellent cocktails
 
 # Dallas, Tx
-Pepper Smash  Plano Tx (Shops of Legacy) great craft cocktails @vTexan
-Whiskey Cakes  Plano Tx great whiskey collection @vTexan
-Fillmore's Pub  Plano Tx (Downtown)  @vTexan
+Pepper Smash  Plano Tx (Shops of Legacy) great craft cocktails @vTexan  
+Whiskey Cakes  Plano Tx great whiskey collection @vTexan  
+Fillmore's Pub  Plano Tx (Downtown) @vTexan  
 
 # Austin, Tx
-Midnight Cowboy Modeling Secret Speakeasy book via OpenTable - follow the instructions  @vTexan
-Ten Oak Great craft cocktails  @vTexan
+Midnight Cowboy Modeling Secret Speakeasy book via OpenTable - follow the instructions @vTexan  
+Ten Oak Great craft cocktails @vTexan  
 
 # San Antonio, Tx
 Bohanana's Steakhouse downstairs bar is a throw back to the 20's great whiskey collection @vTexan
