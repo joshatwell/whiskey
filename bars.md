@@ -12,7 +12,7 @@ Canyon's Restaurant and bar (part of Marriott Hotel) - Great old fashioned
 West End Tavern - Excellent flights
 
 # Denver, CO  
-Bull and Bush = Cherry Creek Area - awesome selection - ask for the off-menu menu.  Lots of Four Roses, and they do their own barrel selects.  
+Bull and Bush - Cherry Creek Area - awesome selection - ask for the off-menu menu.  Lots of Four Roses, and they do their own barrel selects. <- @vTexan 
 
 # Las Vegas, NV
 
