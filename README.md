@@ -14,7 +14,9 @@ Here are the whiskeys I drink on a mostly regular basis. They get restocked easi
 * **Breckenridge** (IS)
 * Breckenridge 105 Distiller's High Proof Blend (IS)
 * Buffalo Trace
+* Bulleit
 * Bulleit 10yr
+* Col E. H. Taylor - Single Barrel (IS)
 * Eagle Rare (IS)
 * Four Roses Single Barrel
 * Four Roses Small Batch
@@ -22,10 +24,11 @@ Here are the whiskeys I drink on a mostly regular basis. They get restocked easi
 * Maker's Mark
 * Maker's Mark 46
 * Old Scout 10 year (IS)
-* Woodford Reserve
+* Woodford Reserve (IS)
 
 
 Here are a whiskeys that are not uncommon in my cabinet but ones I may purchase less frequently.
+* Booker's (IS)
 * Colonol E.H. Taylor Small Batch
 * Elijah Craig
 * I.W. Harper (IS)
@@ -34,29 +37,38 @@ Here are a whiskeys that are not uncommon in my cabinet but ones I may purchase 
 * Knob Creek
 * Knob Creek Rye
 * Old Forester 1870
-* Old Forestor 1897 (IS)
-* Old Forestor 1920 Prohibition Sytle (IS)
+* Old Forestor 1897
+* Old Forestor 1920 Prohibition Sytle
+* Old Granddad Bottled in Bond
 * Russell's Reserve
+* Seventeen Twelve NC Bourbon (IS)
 * Wild Turkey - Forgiven (IS)
+* Willett Pot Still (IS)
 * Woodford Reserve Double Oaked (IS)
 
 ## rye whiskeys
-* **Bulleit Rye**
-* **Crown Royal Northern Harvest Rye** (IS)
+* **Bulleit Rye** (IS)
+* **Crown Royal Northern Harvest Rye** (IS) Makes wonderful Old Fashioned
+* Pikesville Rye (IS)
 * Sazerac Rye (IS)
 * Templeton Rye
 * Willett Rye 8yr (IS)
 
 ## whisky
 * Crown Royal
-* Hibiki Harmony
+* Green Spot
+* Hibiki Harmony (IS)
 * Jameson Black cask
 * Mackellan 15yr
+* Red Breast 12yr
 * **Red Breast 15yr** (IS)
+* Yellow Spot
 
 ## special occassion whiskey
 These are usually whiskeys that are a little harder for me to find but I love sharing with friends. Will identify if I don't have it in stock any more.
 * **Angel's Envy Rye**
+* Blanton's Gold
+* Blanton's Straight from the Barrel
 * Colonel E.H. Taylor Single Barrel
 * **Elmer T Lee**
 * **Jefferson's Ocean** (Multiple voyages)
@@ -71,7 +83,7 @@ These are usually whiskeys that are a little harder for me to find but I love sh
 
 ## my precious whiskey
 These are the whiskeys that I cherish the most(ish) and share with the best(ish). Fair amount of wiggle room here. Will identify if I don't have it in stock any more. :-(
-* Buffalo Trace - Single Oak Project
+* ~~Buffalo Trace - Single Oak Project~~ All gone :-(
 * Elijah Craig 23yr
 * Four Roses - 2014 Special Edition - Barrel Proof Small Batch
 * Four Roses - Elliot's Select - 2016 Limited Edition Single Barrel
@@ -79,6 +91,7 @@ These are the whiskeys that I cherish the most(ish) and share with the best(ish)
 * **Orphan Barrel Rhetoric 20yr**
 * **Orphan Barrel Rhetoric 21yr**
 * **Orphan Barrel Rhetoric 22yr**
+* **Orphan Barrel Rhetoric 23yr**
 * Willett 23yr
 
 # other whiskeys I like
@@ -92,6 +105,8 @@ If you see these out in the wild please send me a message with price. I may have
 
 * Angel's Envy Barrel Proof
 * Blanton's
+* Blanton's Gold
+* Blanton's Straight from the Barrel
 * Elmer T. Lee
 * Old Rip Van Winkle 10yr
 * Pappy van Winkle 23yr
